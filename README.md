@@ -1,5 +1,5 @@
 # Resume
 ---
-My Resume is attached. 
+My Resume is attached :)
 <br>
-Updated Mar 2021.
+Updated March 2021.
